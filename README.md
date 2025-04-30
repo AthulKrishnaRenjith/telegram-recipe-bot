@@ -74,6 +74,6 @@ Submitted in partial fulfillment for the **Bachelor of Technology in Computer Sc
 
 ---
 
-> For collaborations, feel free to reach out via [LinkedIn](https://www.linkedin.com/in/athulkrishnarenjith/) or email.
+> For collaborations, feel free to reach out via [LinkedIn](https://www.linkedin.com/in/athulkrishnarenjith/) or email(rathulk7584@gmail.com).
 
 ---
